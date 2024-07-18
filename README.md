@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can reach me by email at Callisonconnor9@gmail.com and by cell phone at 0631615573.
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: 
+- ⚡ A fun fact about me is that I'm a modern enthusiast who loves exploring and embracing new technologies as they emerge, always eager to stay ahead of the curve in the digital world.
 
 <!---
 ConnorCallison9/ConnorCallison9 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
